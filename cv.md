@@ -13,6 +13,6 @@
 ###### Experience:
 * None
 ###### Education:
-* Belarusion-Russion University
+* Belarusian-Russian University
 ###### English:
 * Level A2 
