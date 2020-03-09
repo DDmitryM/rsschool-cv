@@ -1,5 +1,5 @@
 # Dmitry Matievsky
-![My Photo](https://yadi.sk/i/fn3-soebxgjBFQ)
+![My Photo](https://github.com/DDmitryM/rsschool-cv/blob/gh-pages/Jym8nstSAcc.jpg)
 ###### Contact Info:
 * Phone **+375293209859** / email: *dmitrymatievsky@yandex.ru*
 ###### Summary: 
